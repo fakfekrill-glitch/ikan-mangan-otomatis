@@ -1,1 +1,1 @@
-# ikan-mangan-otomatis
+# Dibuat Sama Dalu Raziq, Ngoding Bikin Pinter Mantap
